@@ -16,7 +16,7 @@ Catherine Classic
 
 ```
 
-Asegurate de Tomar Captura de haber recibido el Regalo. Ponlas en el chat general. Posteriormente lo publicaré en otros canales [Discord](https://discord.gg/MF3vypB).
+Asegurate de Tomar Captura tras haber recibido el Regalo. Ponlas en el chat general. Posteriormente lo publicaré en otros canales [Discord](https://discord.gg/MF3vypB).
 
 ### Eso es todo, Lo hiciste bien. 
 
