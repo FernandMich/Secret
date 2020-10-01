@@ -2,7 +2,7 @@
 
 Buen trabajo! Llegaste!!
 
-![](https://i.kym-cdn.com/photos/images/newsfeed/001/223/569/12b.gif)
+![](https://lh3.googleusercontent.com/proxy/L-qTguVuKdxZAU5ylNvD4ECSInHL8tuEGmWlSeblT_LeK7fiiOUR1AEQrflxL7e3WrNuNEF-DZy4YxAOQt7e1vjoGnUJI4Yq5Pbi9OHGovC_)
 
 Aqui encontrarás los secretos mejor guardados del canal de fer. No todos tienen acceso a esta página. Solo los más curiosos llegan a entrar hasta aqui. 
 
