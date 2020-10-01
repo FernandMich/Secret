@@ -2,7 +2,7 @@
 
 Buen trabajo! Llegaste!!
 
-![](https://lh3.googleusercontent.com/proxy/L-qTguVuKdxZAU5ylNvD4ECSInHL8tuEGmWlSeblT_LeK7fiiOUR1AEQrflxL7e3WrNuNEF-DZy4YxAOQt7e1vjoGnUJI4Yq5Pbi9OHGovC_)
+![](https://i.redd.it/vknfaypdofq01.jpg)
 
 Aqui encontrarás los secretos mejor guardados del canal de fer. No todos tienen acceso a esta página. Solo los más curiosos llegan a entrar hasta aqui. 
 
