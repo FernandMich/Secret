@@ -1,4 +1,6 @@
-## Welcome Al Blog Secreto
+## Bienvenido Al Blog Secreto!
+
+Buen trabajo! Llegaste!!
 
 Aqui encontrarás los secretos mejor guardados del canal de fer. No todos tienen acceso a esta página. Solo los más curiosos llegan a entrar hasta aqui. 
 
