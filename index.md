@@ -1,37 +1,28 @@
-## Welcome to GitHub Pages
+## Welcome Al Blog Secreto
 
-You can use the [editor on GitHub](https://github.com/FernandMich/Secret/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Aqui encontrarás los secretos mayor guardados del canal de fer. No todos tienen acceso a esta página. Solo los más curiosos llegan a entrar hasta aqui. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Sigue leyendo a continuación:
 
-### Markdown
+### Código Steam
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Asegurate de ser el primero en llegar, Siguiendome en mis redes sociales y leyendo el discord
 
 ```markdown
-Syntax highlighted code block
+Code block
 
-# Header 1
-## Header 2
-### Header 3
+Catherine Classic Steam Key GLOBAL
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
 ```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+Asegurate de Tomar captura de aver recibido el Regalo y ponerlas en el chat general. Posteriormente lo publicaré en otros canales [Discord](https://discord.gg/MF3vypB).
 
-### Jekyll Themes
+### Eso es todo, Lo hiciste bien. 
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/FernandMich/Secret/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+### El siguiente código será subido dentro de 10 a 15 dias despúes de aver sido descubierto este.
 
-### Support or Contact
+Buena suerte y adios.
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Atte: Equipo a cargo de regalos de fer
+
