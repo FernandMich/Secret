@@ -6,7 +6,7 @@ Sigue leyendo
 
 ### Ganaste un Código de Steam
 
-Asegurate de ser el primero en llegar, Sigueme en mis redes sociales [Twitter](https://twitter.com/Fernand_Mich) | [Patas Army](https://www.facebook.com/groups/267029784370517) y porsupuesto [Twitch](https://www.twitch.tv/fernandmich)
+Asegurate de ser el primero en llegar, Sigueme en mis redes sociales [Twitter](https://twitter.com/Fernand_Mich) también en [Patas Army](https://www.facebook.com/groups/267029784370517) y porsupuesto [Twitch](https://www.twitch.tv/fernandmich)
 
 ```markdown
 Steam Key GLOBAL
