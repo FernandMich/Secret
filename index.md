@@ -4,19 +4,19 @@ Aqui encontrarás los secretos mejor guardados del canal de fer. No todos tienen
 
 Sigue leyendo
 
-### Código Steam
+### Ganaste un Código de Steam
 
 Asegurate de ser el primero en llegar, Sigueme en mis redes sociales [Twitter](https://twitter.com/Fernand_Mich) | [Patas Army](https://www.facebook.com/groups/267029784370517) y porsupuesto [Twitch](https://www.twitch.tv/fernandmich)
 
 ```markdown
-Code block
+Steam Key GLOBAL
 
-Catherine Classic Steam Key GLOBAL
+Catherine Classic
 
 
 ```
 
-Asegurate de Tomar captura de aver recibido el Regalo y ponerlas en el chat general. Posteriormente lo publicaré en otros canales [Discord](https://discord.gg/MF3vypB).
+Asegurate de Tomar Captura de haber recibido el Regalo. Ponlas en el chat general. Posteriormente lo publicaré en otros canales [Discord](https://discord.gg/MF3vypB).
 
 ### Eso es todo, Lo hiciste bien. 
 
