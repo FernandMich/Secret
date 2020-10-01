@@ -1,12 +1,12 @@
 ## Welcome Al Blog Secreto
 
-Aqui encontrarás los secretos mayor guardados del canal de fer. No todos tienen acceso a esta página. Solo los más curiosos llegan a entrar hasta aqui. 
+Aqui encontrarás los secretos mejor guardados del canal de fer. No todos tienen acceso a esta página. Solo los más curiosos llegan a entrar hasta aqui. 
 
 Sigue leyendo
 
 ### Código Steam
 
-Asegurate de ser el primero en llegar, Sigueme en mis redes sociales [Twitter](https://twitter.com/Fernand_Mich) y [Patas Army](https://www.facebook.com/groups/267029784370517)
+Asegurate de ser el primero en llegar, Sigueme en mis redes sociales [Twitter](https://twitter.com/Fernand_Mich) [Patas Army](https://www.facebook.com/groups/267029784370517) y porsupuesto [Twitch](https://www.twitch.tv/fernandmich)
 
 ```markdown
 Code block
